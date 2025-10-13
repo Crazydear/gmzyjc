@@ -1,4 +1,6 @@
-本项目已归档，最新的版本请访问：https://cnb.cool/gmzyjx/gmzy
+# **因国内访问不便，本项目已经转移至：https://cnb.cool/gmzyjx/gmzy**
+
+------
 
 
 
